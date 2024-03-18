@@ -6,7 +6,7 @@
 Grey's Anatomy Saison 20 en Streaming VF ét Vostfr Complet en Français<br/>
 
 Résumé Greys Anatomy Saison 20 :<br/>
-Follows the personal and professional lives of a group of doctors at Seattle’s Grey Sloan Memorial Hospital.
+Suit la vie personnelle et professionnelle d’un groupe de médecins du Grey Sloan Memorial Hospital de Seattle.
 
 Regardez le streaming ou téléchargez Grey's Anatomy Saison 20 en ligne Full HD (essai gratuit) ici :<br/>
 
